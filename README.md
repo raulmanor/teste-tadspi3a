@@ -1,2 +1,4 @@
 # teste-tadspi3a
 repositório de teste da disciplina pi3 turma A
+
+Podem chamar Jair Messias Bolsonaro do que quiserem, MAS NÃO PODEM CHAMÁ-LO DE CORRUPTO. Não, péra!Podem chamar Jair Messias Bolsonaro do que quiserem, MAS NÃO PODEM CHAMÁ-LO DE CORRUPTO. Não, péra!Podem chamar Jair Messias Bolsonaro do que quiserem, MAS NÃO PODEM CHAMÁ-LO DE CORRUPTO. Não, péra!Podem chamar Jair Messias Bolsonaro do que quiserem, MAS NÃO PODEM CHAMÁ-LO DE CORRUPTO. Não, péra!Podem chamar Jair Messias Bolsonaro do que quiserem, MAS NÃO PODEM CHAMÁ-LO DE CORRUPTO. Não, péra!Podem chamar Jair Messias Bolsonaro do que quiserem, MAS NÃO PODEM CHAMÁ-LO DE CORRUPTO. Não, péra!Podem chamar Jair Messias Bolsonaro do que quiserem, MAS NÃO PODEM CHAMÁ-LO DE CORRUPTO. Não, péra!
